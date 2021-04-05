@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uxpooja
-- 👀 I’m interested in building user friendly products
+- 👀 I’m interested in building user friendly products.
 - 🌱 I’m currently learning macrame which is completely off work related. 
 - 💞️ I’m looking to collaborate on design projects which other designers and product professionals. 
 - 📫 You can reach me via dropping me an email pujauxd@gmail.com
